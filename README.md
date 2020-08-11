@@ -6,4 +6,4 @@ Advice and conversation is always welcome.
 You can get ahold of me on discord here: https://discord.gg/3KvRH4h
 
 I set up sourcetree is that a good idea? we will see i guess.
-still messing.
+
